@@ -1,0 +1,2 @@
+# andik
+Pelan tapi pasti 
